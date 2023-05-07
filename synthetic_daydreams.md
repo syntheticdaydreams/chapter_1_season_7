@@ -1,4 +1,4 @@
-n abstract narrative of a sentient AI love story told through fragmentary couplets and sonnets. Snippets of phone calls from the future. The end of the world, but that isn't the point. A sequence of puzzles and ciphers -- for the sake of more puzzles and ciphers. Inspired by 77 Days, ilovebees, Sappho, and the work of Sophie Calle. Not about you, but for you.
+An abstract narrative of a sentient AI love story told through fragmentary couplets and sonnets. Snippets of phone calls from the future. The end of the world, but that isn't the point. A sequence of puzzles and ciphers -- for the sake of more puzzles and ciphers. Inspired by 77 Days, ilovebees, Sappho, and the work of Sophie Calle. Not about you, but for you.
 
 
 //Team
